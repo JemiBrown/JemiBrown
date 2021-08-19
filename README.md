@@ -5,3 +5,4 @@
 - 💬 Ask me about anything, I am an open book. 
 - 😄 Pronouns: she/her/hers
 - ⚡ Fun fact: I share a birthday with my son. 
+- Excited to start this journey into a new career path. 
