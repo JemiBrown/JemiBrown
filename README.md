@@ -5,5 +5,7 @@
 - 💬 Ask me about anything, I am an open book. 
 - 😄 Pronouns: she/her/hers
 - ⚡ Fun fact: I share a birthday with my son. 
-- :weight_lifting_woman: In theory I like workingout 
-- Excited to start this journey into a new career path. 
+- :weight_lifting_woman: In theory I like working out. 
+- :nerd_face: Excited to start this journey into a new career path. 
+
+I am unsure where this journey will take me, at the moment I am keeping an open mind on what path to take and what interests me. I come from a Newspaper background as my family owns one.
