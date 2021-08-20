@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there :vulcan_salute:
 
 - 🔭 I’m currently working on setting myself to meet people and learn how to code. 
 - 🌱 I’m currently learning to be open minded about expectations.
