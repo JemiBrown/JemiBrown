@@ -5,4 +5,5 @@
 - 💬 Ask me about anything, I am an open book. 
 - 😄 Pronouns: she/her/hers
 - ⚡ Fun fact: I share a birthday with my son. 
+- :weight_lifting_woman:
 - Excited to start this journey into a new career path. 
